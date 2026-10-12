@@ -1,0 +1,1 @@
+My Second Study third Project at Yandex Practicum Link: https://github.com/Suslik2006/slozhno-sosredotochitsya-fd
